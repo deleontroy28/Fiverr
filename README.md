@@ -42,6 +42,6 @@ Fiverr适合以下人群：
 3. 自由职业者/学生/兼职人员
 4. 有外包需求的人群
 
-如果您需要在Fiverr上进行交易，[点击此处获取支持Fiverr的虚拟卡](https://gpt.fomepay.com/#/pages/login/index?d=Q3DD80)
+如果您需要在Fiverr上进行交易，[点击此处获取支持Fiverr的虚拟卡](https://bit.ly/bewildcard)
 
 希望本文能帮助您更好地了解和使用Fiverr平台。
